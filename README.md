@@ -29,7 +29,7 @@ Customize Shopify apps that can lure huge wide customer-base and help satisfy th
 
 
 
-Thinking to customize your Shopify apps? To get more information, visit:  [https://meetanshi.com/shopify-app-development-services.html](https://meetanshi.com/shopify-app-development-services.html)
+Thinking to customize your Shopify apps? To get more information, visit:  ***[https://meetanshi.com/shopify-app-development-services.html](https://meetanshi.com/shopify-app-development-services.html)***
 
 
 
